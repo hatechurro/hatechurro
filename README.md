@@ -1,2 +1,2 @@
-hatechurro the most time
-lovechurro some days
+most of the time hatechurro,
+lovechurro not so even
